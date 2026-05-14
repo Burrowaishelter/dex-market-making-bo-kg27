@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with dex liquidity bot premium Strategy | rug-pull-detection & price-impact-analysis, the #1 dex liquidity bot. Includes rug-pull-detection and
 
 
 
